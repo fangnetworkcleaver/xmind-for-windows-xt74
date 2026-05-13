@@ -1,4 +1,4 @@
-# 
+# XMind for Windows advanced Script: tags & templates is the best XMind for Windows script, featuring tags and templates. Powerful, efficient, and optimized for Windows users.
 
 
 
